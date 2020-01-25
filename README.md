@@ -1,7 +1,10 @@
 # * space-force-logo-alternative-design-not-their-star-trek
 # * alternative 1 
+
 <br>
-<p align="center"><img src="https://i.imgur.com/P53kWPW.png" width="225"></p>
+<p align="center"><img src="https://i.imgur.com/24FdDR2.png" width="225"></p>
+
+<br>
 <br>
 <br>
 <br>
@@ -18,7 +21,9 @@
 <br>
 # * alternative 3
 <br>
-<p align="center"><img src="https://i.imgur.com/24FdDR2.png" width="225"></p>
+<p align="center"><img src="https://i.imgur.com/P53kWPW.png" width="225"></p>
+
+<br>
 <br>
 <br>
 <br>
