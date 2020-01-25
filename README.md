@@ -11,9 +11,12 @@
 <br>
 <br>
 <br>
-# * alternative 2
+# * alternative 2 compared to their original
 <br>
 <p align="center"><img src="https://i.imgur.com/Qslw76o.png" width="225"></p>
+<br>
+<p align="center"><img src="https://media.npr.org/assets/img/2020/01/24/space-force-logo_custom-fe81463b84fab8dc0bc09dc3f9417e32959c2680-s800-c85.jpg" width="225"></p>
+<br>
 <br>
 <br>
 <br>
@@ -33,3 +36,7 @@
 <br>
 <br> since earth owns the other few planets orbiting this sun, that we own as earthlings, outside of real estate debates over terrorities and war on this world over who owns what land already the usual deboggle,
 
+
+$100 per print by patent modification of existing design per print dhweinberg payable zelle harley0006@gmail.com or bitcoin wallet or google pay harley0006@gmail.com
+
+(if you print it poor mans patent)
