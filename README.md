@@ -1,6 +1,6 @@
 # * space-force-logo-alternative-design-not-their-star-trek
 # * alternative 1 
-
+(my personal visual pick if i were to choose not my choice, i would figure alternative 1)
 <br>
 <p align="center"><img src="https://i.imgur.com/24FdDR2.png" width="225"></p>
 
