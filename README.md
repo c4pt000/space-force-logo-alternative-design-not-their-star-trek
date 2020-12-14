@@ -37,6 +37,3 @@
 <br> since earth owns the other few planets orbiting this sun, that we own as earthlings, outside of real estate debates over terrorities and war on this world over who owns what land already the usual deboggle,
 
 
-https://www.binance.com/en/buy-sell-crypto/channel-list/buy/USD/BTC/10
-
-on average its $5.00 USD to transmit bitcoin on most websites dealing with bitcoin
